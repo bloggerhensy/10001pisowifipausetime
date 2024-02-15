@@ -1,1 +1,1 @@
-# 10001pisowifipausetime
+⚡ Welcome to “[10001pisowifipausetime.com](https://10001pisowifipausetime.com/)” your dedicated portal for mastering Piso WiFi, the Philippines’ popular public WiFi service. We are a team passionate about making the internet more accessible and user-friendly for everyone.
